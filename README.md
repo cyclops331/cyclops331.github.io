@@ -1,0 +1,2 @@
+# Sai website
+If you had absolute clarity about everything, you would know how to act in the given situation or what ever that is. And you would largely know the consequence of that action. If it is a calculated effort and you took the action, it may succeed. It may not succeed. Because there could be many factors that you could have overlooked. But if you had enough clarity, the chances of success is much much better.
